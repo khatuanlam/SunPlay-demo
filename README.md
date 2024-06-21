@@ -1,0 +1,1 @@
+Nhấn vào Logo để có thể đi đến trang Sản Phẩm.
